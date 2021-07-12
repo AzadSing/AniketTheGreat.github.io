@@ -1,3 +1,2 @@
 # FirtstWebsite
-
-it is just casual website
+Learning HTML 
