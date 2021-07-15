@@ -18,6 +18,17 @@ Followers wore a tika on forehead as
 ![Shiva Sadhu tilak](sadhu.jpg) 
 
 
-The Auspuscious animal assosiated with shiva is
+The Auspicious animal assosiated with shiva is
 
 ![Nandi](/nandi.jpg)
+
+Numerous number of temples are present all over the country and thousands of people go to worship shiva daily.
+![Natraja](natraja.png)
+![Shiva Sculpture at a temple](idol.jpg)
+
+Bells in indian temples are present at entry and exit point .
+![bells](bell.jpg)
+Shiva also termed as **Natraja** King of dancing . He holds **Damru** and  **Trishul** in his hands.  
+![Damru](damru.jpg)
+![trishul](trishul.jpg)
+
