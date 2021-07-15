@@ -4,20 +4,20 @@ Let's tell you something about me :
  * 12 year old as of now
 
 
-![Shiva The Pinak holder](/images/pinakin.png)
+![Shiva The Pinak holder](pinakin.png)
 
 ###### There are two main sects of follower in hinduism
 #### Shaivism and VAishnavism
 
 Shiva is formerly known as **Rudra** and history can be stated by the image
 
-![shaivism](/images/Shaivism.jpg) 
+![shaivism](Shaivism.jpg) 
 
 Followers wore a tika on forehead as
 
-![Shiva Sadhu tilak](/images/sadhu.jpg) 
+![Shiva Sadhu tilak](sadhu.jpg) 
 
 
 The Auspuscious animal assosiated with shiva is
 
-![Nandi](/images/nandi.jpg)
+![Nandi](/nandi.jpg)
