@@ -24,11 +24,22 @@ The Auspicious animal assosiated with shiva is
 
 Numerous number of temples are present all over the country and thousands of people go to worship shiva daily.
 ![Natraja](natraja.png)
+
+
+Beautiful Sculptures are made at temples .
+
+
 ![Shiva Sculpture at a temple](idol.jpg)
 
 Bells in indian temples are present at entry and exit point .
+
 ![bells](bell.jpg)
-Shiva also termed as **Natraja** King of dancing . He holds **Damru** and  **Trishul** in his hands.  
-![Damru](damru.jpg)
+
+
+Shiva also termed as **Natraja** King of dancing . He holds  **Trishul** and **Damru** in his hands.
+
+
 ![trishul](trishul.jpg)
+![Damru](damru.jpg)
+
 
