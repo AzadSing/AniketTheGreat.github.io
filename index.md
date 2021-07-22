@@ -7,7 +7,7 @@ Let's tell you something about me :
 ![Shiva The Pinak holder](pinakin.png)
 
 ###### There are two main sects of follower in hinduism
-#### Shaivism and VAishnavism
+#### Shaivism and Vaishnavism
 
 Shiva is formerly known as **Rudra** and history can be stated by the image
 
