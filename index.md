@@ -36,10 +36,6 @@ Bells in indian temples are present at entry and exit point .
 ![bells](bell.jpg)
 
 
-Shiva also termed as **Natraja** King of dancing . He holds  **Trishul** and **Damru** in his hands.
 
-
-![trishul](trishul.jpg)
-![Damru](damru.jpg)
 
 
